@@ -1,1 +1,0 @@
-# AsitAgri.apk
